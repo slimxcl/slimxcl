@@ -12,6 +12,7 @@
 <img src="https://files.catbox.moe/0mnr8h.png"="1000" height="50">
 <p align="left">
 <img align="left" src="https://github.com/slimxcl/screens/blob/4dd5882f97e540aaf271baca0130af0f66d14399/Screenshot_2026-03-22_122148-removebg-preview.png"height="500">
+
 <p align="right">
   <p align="center">HEY GNG, olivia here !
   <p align="center">im a 18 yo artist from germany ( ´ ▿ ` )
@@ -21,7 +22,8 @@
   <p align="center">but dont be scared to int w me, meow
   <p align="center">
   <img src="https://64.media.tumblr.com/968f9317bb65a02466898ea6b5322c5a/7b8a2a7688ebbd41-a8/s75x75_c1/020e79fc0884be9e20009205a3b0b7f543a52554.gif" width="100" height="35">
-
+  <p align="left">
+    ᵒˢᵏᵃʳ ᵐʸ ᵇᵉˡᵒᵛᵉᵈ
 
 <p align="center">
 <img src="https://github.com/slimxcl/screens/blob/c15e69ef88434d1260b2e43d6363b262ce102168/eir3gp-removebg-preview(1).png" width="900" height="100">
