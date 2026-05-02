@@ -40,7 +40,15 @@
     Fnaf,  mha, Mc (dsmp), Undertale/Au's, F1,Valorant, Crk, Genshin Impact, Southpark, Squidgame, The Hobit, Tokyo Revengers, Marvel, Avatar, TaDC, Kcd2, Arcane, Warrior Cats, Final Fantasy, Creepypasta, AliceInBorderland, StarWars, Bluelock, TLoU, Jurassic world, AtSV, Mouthwashing, Dexter
   <p align="left">
   I'll never actually leave a fandom...(╥_╥)
+  ------------------------------------------------------------------------------
   
+Im also into controversial ships so be warned when int w me.
 <p align="center">
+  <img src="https://kelprot.neocities.org/indeximg/graphix/stampdump/11of2p.webp">
+  
+  <p align="left">I do not care what others ship so lets js all mind our buissness (≧◡≦) ♡
+  <p align="left">
 <img src="https://github.com/slimxcl/screens/blob/0d16d5213fc158e4acae00cdbf8ff17bcfa7bc56/pony-town-sov-kiss-blush-padded-toy176-4x.gif" width="100" height="100"><img src="https://github.com/slimxcl/screens/blob/0d16d5213fc158e4acae00cdbf8ff17bcfa7bc56/pony-town--kiss-blush-blinking-padded-4x.gif" width="100" height="100">
+(@Ottoes <3)
+
 
