@@ -24,10 +24,11 @@
 
 
 <p align="center">
-<img src="https://files.catbox.moe/1hkrpi.gif" width="900" height="100">
-                                                                         
+<img src="https://github.com/slimxcl/screens/blob/c15e69ef88434d1260b2e43d6363b262ce102168/eir3gp-removebg-preview(1).png" width="900" height="100">
 
+<img align="right" src="https://github.com/slimxcl/screens/blob/bf32bb4ccb332ad986bcb5dd9a84a8d39c714fba/Screenshot_2026-04-24_161240-removebg-preview.png">
+<p align="right">
 
-https://github.com/slimxcl/screens/blob/main/WORLD_WAR_I_IRON_CROSS__1ST_CLASS-removebg-preview.png?raw=true
-https://i.pinimg.com/736x/4f/ae/f7/4faef7c78908c5e94122463891c1ca0e.png
+                                                                        
+
 
