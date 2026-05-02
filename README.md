@@ -27,8 +27,20 @@
 <img src="https://github.com/slimxcl/screens/blob/c15e69ef88434d1260b2e43d6363b262ce102168/eir3gp-removebg-preview(1).png" width="900" height="100">
 
 <img align="right" src="https://github.com/slimxcl/screens/blob/bf32bb4ccb332ad986bcb5dd9a84a8d39c714fba/Screenshot_2026-04-24_161240-removebg-preview.png">
-<p align="right">
+<p align="left">
+  MY CURRENT INTERESTS:
+  <p align="left">
+    Countryhumans, Game of Thrones, T-34 the Duel, Napola, JJK, Hellboy, Adventures of Buratino, Hellsing!﹙anything History related, especially ww2﹚
 
-                                                                        
-
+   <p align="center"> 
+     ── ⋆⋅☆⋅⋆ ──
+<p align="left">
+  EVERYTHING ELSE THAT I LOVE:
+    <p align="left">
+    Fnaf,  mha, Mc (dsmp), Undertale/Au's, F1,Valorant, Crk, Genshin Impact, Southpark, Squidgame, The Hobit, Tokyo Revengers, Marvel, Avatar, TaDC, Kcd2, Arcane, Warrior Cats, Final Fantasy, Creepypasta, AliceInBorderland, StarWars, Bluelock, TLoU, Jurassic world, AtSV, Mouthwashing, Dexter
+  <p align="left">
+  I'll never actually leave a fandom...(╥_╥)
+  
+<p align="center">
+<img src="https://github.com/slimxcl/screens/blob/0d16d5213fc158e4acae00cdbf8ff17bcfa7bc56/pony-town-sov-kiss-blush-padded-toy176-4x.gif" width="100" height="100"><img src="https://github.com/slimxcl/screens/blob/0d16d5213fc158e4acae00cdbf8ff17bcfa7bc56/pony-town--kiss-blush-blinking-padded-4x.gif" width="100" height="100">
 
