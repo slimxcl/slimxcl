@@ -51,7 +51,21 @@ Im also into controversial ships so be warned when int w me.
   <p align="left">I do not care what others ship so lets js all mind our buissnes (≧◡≦) ♡
   <p align="left">
 <img src="https://github.com/slimxcl/screens/blob/0d16d5213fc158e4acae00cdbf8ff17bcfa7bc56/pony-town-sov-kiss-blush-padded-toy176-4x.gif" width="100" height="100"><img src="https://github.com/slimxcl/screens/blob/0d16d5213fc158e4acae00cdbf8ff17bcfa7bc56/pony-town--kiss-blush-blinking-padded-4x.gif" width="100" height="100">
-[Ottoes <3](https://github.com/ottonass)
+    
+feat: [meine Mausi Otto](https://github.com/ottonass)
 
 
 [Straw](https://wipparadise.straw.page)
+
+
+
+
+
+
+
+
+
+
+
+
+
