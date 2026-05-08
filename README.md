@@ -65,8 +65,7 @@ feat: [meine Mausi Otto](https://github.com/ottonass)
 
 
 <p align="center">
-<img src="https://github.com/slimxcl/screens/blob/d0662043a4b025c90b079a759e85eb5511cd1dbc/Screenshot_2026-05-07_190852-removebg-preview.png" width="400" height="400"><img src="https://github.com/slimxcl/screens/blob/d0662043a4b025c90b079a759e85eb5511cd1dbc/Screenshot_2026-05-07_190852-removebg-preview.png" width="400" height="400">
-
+<img src="https://vinnyvistazo.com/img/decorations/divider/stone_engraving_2.png" width="900" height="50">
 
 
 i have a bunch of wips so i js made a [Straw](https://wipparadise.straw.page) gallery
@@ -77,7 +76,7 @@ i have a bunch of wips so i js made a [Straw](https://wipparadise.straw.page) ga
    <p align="center"> 
      ── ⋆⋅☆⋅⋆ ──
 
-dont mind allat im still not done w this git :p
+dont mind allat mess im still not done w this git :p
 
 
 <img src="https://github.com/slimxcl/screens/blob/0eb7fbb0d2230454db9fa4d099a6a33a560cb170/IMG_9271.jpg" width="200" height="175">
