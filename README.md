@@ -86,9 +86,5 @@ dont mind allat mess im still not done w this git :p
 
 
 
-<p align="center">
-<img src="https://vinnyvistazo.com/img/decorations/divider/stone_engraving_2.png" width="900" height="50">
-
-
 
 
