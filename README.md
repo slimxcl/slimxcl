@@ -64,11 +64,17 @@ feat: [meine Mausi Otto](https://github.com/ottonass)
 
 
 
-[Straw](https://wipparadise.straw.page)
-
-
+i have a bunch of wips so i js made a [Straw](https://wipparadise.straw.page) gallery
 
 <img src="https://github.com/slimxcl/screens/blob/0eb7fbb0d2230454db9fa4d099a6a33a560cb170/IMG_9269.jpg" width="200" height="200">
+
+   
+   <p align="center"> 
+     ── ⋆⋅☆⋅⋆ ──
+
+dont mind allat im still not done w this git :p
+
+
 <img src="https://github.com/slimxcl/screens/blob/0eb7fbb0d2230454db9fa4d099a6a33a560cb170/IMG_9271.jpg" width="200" height="175">
 <img src="https://github.com/slimxcl/screens/blob/0eb7fbb0d2230454db9fa4d099a6a33a560cb170/IMG_9278.jpg" width="200" height="300">
 
