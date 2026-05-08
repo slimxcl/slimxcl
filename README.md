@@ -32,14 +32,14 @@
 <p align="left">
   MY CURRENT INTERESTS:
   <p align="left">
-    Countryhumans, Game of Thrones, T-34 the Duel, Napola, JJK, Hellboy, Adventures of Buratino, Hellsing!﹙anything History related, especially ww2﹚
+    Countryhumans, Game of Thrones, T-34 the Duel, Napola, JJK, Hellboy, Adventures of Buratino, F1, Hellsing!﹙anything History related, especially ww2﹚
 
    <p align="center"> 
      ── ⋆⋅☆⋅⋆ ──
 <p align="left">
   EVERYTHING ELSE THAT I LOVE:
     <p align="left">
-    Fnaf,  mha, Mc (dsmp), Undertale/Au's, F1,Valorant, Crk, Genshin Impact, Southpark, Squidgame, The Hobit, Tokyo Revengers, Marvel, Avatar, TaDC, Kcd2, Arcane, Warrior Cats, Final Fantasy, Creepypasta, AliceInBorderland, StarWars, Bluelock, TLoU, Jurassic world, AtSV, Mouthwashing, Dexter
+    Fnaf,  mha, Mc (dsmp), Undertale/Au's, Valorant, Crk, Genshin Impact, Southpark, Squidgame, The Hobit, Tokyo Revengers, Marvel, Avatar, TaDC, Kcd2, Arcane, Warrior Cats, Final Fantasy, Creepypasta, AliceInBorderland, StarWars, Bluelock, TLoU, Jurassic world, AtSV, Mouthwashing, Dexter
   <p align="left">
   I'll never actually leave a fandom...(╥_╥)
 
@@ -63,11 +63,14 @@ feat: [meine Mausi Otto](https://github.com/ottonass)
 <img src="https://github.com/slimxcl/screens/blob/d0662043a4b025c90b079a759e85eb5511cd1dbc/Screenshot_2026-05-07_190852-removebg-preview.png" width="400" height="400"><img src="https://github.com/slimxcl/screens/blob/d0662043a4b025c90b079a759e85eb5511cd1dbc/Screenshot_2026-05-07_190852-removebg-preview.png" width="400" height="400">
 
 
+
 [Straw](https://wipparadise.straw.page)
 
 
 
-
+<img src="https://github.com/slimxcl/screens/blob/0eb7fbb0d2230454db9fa4d099a6a33a560cb170/IMG_9269.jpg" width="200" height="200">
+<img src="https://github.com/slimxcl/screens/blob/0eb7fbb0d2230454db9fa4d099a6a33a560cb170/IMG_9271.jpg" width="200" height="175">
+<img src="https://github.com/slimxcl/screens/blob/0eb7fbb0d2230454db9fa4d099a6a33a560cb170/IMG_9278.jpg" width="200" height="300">
 
 
 
