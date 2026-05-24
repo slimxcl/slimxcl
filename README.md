@@ -82,7 +82,7 @@ i have a bunch of wips so i js made a [Straw](https://wipparadise.straw.page) ga
 dont mind allat mess im still not done w this git :p
 
 
-<img src="https://github.com/slimxcl/screens/blob/0eb7fbb0d2230454db9fa4d099a6a33a560cb170/IMG_9271.jpg" width="200" height="175">
+<img src="https://github.com/slimxcl/screens/blob/0eb7fbb0d2230454db9fa4d099a6a33a560cb170/IMG_9271.jpg" width="200" height="175"><img src="https://github.com/slimxcl/screens/blob/9565a0ada50d94c7a80789f9e94dc8c331761915/Screenshot%202026-05-24%20212820.png" width="200" height="250"><img src="https://github.com/slimxcl/screens/blob/9565a0ada50d94c7a80789f9e94dc8c331761915/Screenshot_2026-02-19-03-00-26-333_com.discord-edit.jpg" width="200" height="300">
 <img src="https://github.com/slimxcl/screens/blob/0eb7fbb0d2230454db9fa4d099a6a33a560cb170/IMG_9278.jpg" width="200" height="300">
 
 <div><a href="http://www.tiptopglobe.com/free-forum-userbars" title="More userbars to free download"><img src="http://www.tiptopglobe.com/userbar/cb85060d67282a0a0d64d3a5cec4155f.png" width="350" height="19" border="0"></a></div>
