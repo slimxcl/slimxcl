@@ -62,6 +62,10 @@ Im also into controversial ships so be warned when int w me.
     
 feat: [meine Mausi Otto](https://github.com/ottonass)
 
+ <p align="center">
+ <img src="https://github.com/slimxcl/screens/blob/4d468e6045177c8199714b1cc8432537df74e975/Titelloses_191_20260524201537.png" width="500" height="400">
+
+ 
 
 <p align="center">
 <img src="https://github.com/slimxcl/screens/blob/2b852b136afa8809e4b3c8dcf89b7c626020bf54/Screenshot_2026-05-08_162608-removebg-preview.png" width="300" height="100"><img src="https://github.com/slimxcl/screens/blob/2b852b136afa8809e4b3c8dcf89b7c626020bf54/Screenshot_2026-05-08_162619-removebg-preview.png" width="300" height="100">
