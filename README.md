@@ -32,7 +32,7 @@
 <p align="left">
   MY CURRENT INTERESTS:
   <p align="left">
-    Countryhumans, Game of Thrones, T-34 the Duel, Napola, JJK, Hellboy, Adventures of Buratino, F1, Hellsing!﹙anything History related, especially ww2﹚
+    Countryhumans, Game of Thrones, House of the Dragon, Knight of the seven Kingdoms, T-34 the Duel, Napola, JJK, Hellboy, Adventures of Buratino, F1, Hellsing!﹙anything History related, especially ww2﹚
 
    i also enjoy tanks and cars ([rally especially](https://dudududuaah.straw.page))
     
