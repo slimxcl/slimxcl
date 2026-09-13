@@ -5,7 +5,6 @@
 <p align="center">
 |she/her|
 
-
 <p align="center">
 <img src="https://files.catbox.moe/0g0rp7.gif" width="100" height="35"><img src="https://files.catbox.moe/m3tbly.gif" width="100" height="35">
 
