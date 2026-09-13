@@ -65,12 +65,15 @@ Im also into controversial ships so be warned when int w me.
 feat: [meine Mausi Otto](https://github.com/ottonass)
 
  <p align="center">
- <img src="https://github.com/slimxcl/screens/blob/7a02c7ca68dad85f0025b617b11e22792b3d5a08/Titelloses_192_20260524212150.png" width="500" height="400">
+ <img src="https://github.com/user-attachments/assets/a2589b28-9136-45dc-9cbb-3bf520824ddd" width="600" height="280">
+ <img width="254" height="23" alt="Screenshot 2026-05-28 002441" src="https://github.com/user-attachments/assets/02daa384-f861-4efa-9fd9-ee90c023212a" />
 
- 
+
 
 <p align="center">
-<img src="https://github.com/slimxcl/screens/blob/2b852b136afa8809e4b3c8dcf89b7c626020bf54/Screenshot_2026-05-08_162608-removebg-preview.png" width="300" height="100"><img src="https://github.com/slimxcl/screens/blob/2b852b136afa8809e4b3c8dcf89b7c626020bf54/Screenshot_2026-05-08_162619-removebg-preview.png" width="300" height="100">
+<img src="https://github.com/user-attachments/assets/e73748ed-115f-4679-86ba-061b03a08f2e" width="300" height="100"><img src="https://github.com/user-attachments/assets/fe9c605d-0a6e-48c2-a663-eaadb3871948" width="300" height="100">
+
+
 
 
 i have a bunch of wips so i js made a [Straw](https://wipparadise.straw.page) gallery
@@ -88,8 +91,6 @@ dont mind allat mess im still not done w this git :p
 <img src="https://github.com/slimxcl/screens/blob/0eb7fbb0d2230454db9fa4d099a6a33a560cb170/IMG_9278.jpg" width="200" height="300">
 
 <div><a href="http://www.tiptopglobe.com/free-forum-userbars" title="More userbars to free download"><img src="http://www.tiptopglobe.com/userbar/cb85060d67282a0a0d64d3a5cec4155f.png" width="350" height="19" border="0"></a></div>
-
-
 
 
 
