@@ -1,5 +1,5 @@
 <p align="center">
-<img width="40" src=https://files.catbox.moe/ps7p0f.webp> <img width="150" src=https://files.catbox.moe/du2bla.png><img width="300" src="https://github.com/slimxcl/screens/blob/main/WORLD_WAR_I_IRON_CROSS__1ST_CLASS-removebg-preview.png?raw=true" "style="margin-right: 8px;"><img width="150" src=https://files.catbox.moe/du2bla.png><img width="40" src=https://files.catbox.moe/ps7p0f.webp>
+<img width="40" src=https://files.catbox.moe/ps7p0f.webp> <img width="150" src=https://files.catbox.moe/du2bla.png><img width="300" src="https://github.com/slimxcl/screens/blob/98dc12b5b4f45f9ee7aaa4c9cb62bb346b3254fe/edelweiss.png" "style="margin-right: 8px;"><img width="150" src=https://files.catbox.moe/du2bla.png><img width="40" src=https://files.catbox.moe/ps7p0f.webp>
 <p align="center">
 ✦•┈๑⋅⋯ LIV ⋯⋅๑┈•✦
 <p align="center">
