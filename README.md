@@ -27,7 +27,7 @@
     ᵒˢᵏᵃʳ ᵐʸ ᵇᵉˡᵒᵛᵉᵈ
 
 <p align="center">
-<img src="https://github.com/slimxcl/screens/blob/c15e69ef88434d1260b2e43d6363b262ce102168/eir3gp-removebg-preview(1).png" width="900" height="100">
+<img width="900" height="100" alt="IMG-7983" src="https://github.com/user-attachments/assets/1b3d02ea-a994-492f-acf5-1e6a910204e9" />
 
 <img align="right" src="https://github.com/slimxcl/screens/blob/bf32bb4ccb332ad986bcb5dd9a84a8d39c714fba/Screenshot_2026-04-24_161240-removebg-preview.png">
 <p align="left">
