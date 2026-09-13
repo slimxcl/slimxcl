@@ -1,3 +1,4 @@
+<img width="282" height="530" alt="Screenshot 2026-04-24 161240" src="https://github.com/user-attachments/assets/c4b9fb34-2056-4ab3-ab6b-533ffada968b" />
 <p align="center">
 <img width="40" src=https://files.catbox.moe/ps7p0f.webp> <img width="150" src=https://files.catbox.moe/du2bla.png><img width="150" height="200" alt="edelweiss" src="https://github.com/user-attachments/assets/9ce9d827-7554-4c16-bfd4-865d89899276" /><img width="150" src=https://files.catbox.moe/du2bla.png><img width="40" src=https://files.catbox.moe/ps7p0f.webp>
 <p align="center">
