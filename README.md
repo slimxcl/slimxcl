@@ -11,7 +11,7 @@
 <p align="center">
 <img src="https://files.catbox.moe/0mnr8h.png"="1000" height="50">
 <p align="left">
-<img align="left" src="https://github.com/slimxcl/screens/blob/4dd5882f97e540aaf271baca0130af0f66d14399/Screenshot_2026-03-22_122148-removebg-preview.png"height="500">
+<img align="left" src="https://github.com/user-attachments/assets/905904fa-7f29-40ce-b56f-b680404b3efb" height="500">
 
 <p align="right">
   <p align="center">HEY GNG, olivia here !
