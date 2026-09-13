@@ -78,7 +78,8 @@ feat: [meine Mausi Otto](https://github.com/ottonass)
 
 i have a bunch of wips so i js made a [Straw](https://wipparadise.straw.page) gallery
 
-<img src="https://github.com/slimxcl/screens/blob/0eb7fbb0d2230454db9fa4d099a6a33a560cb170/IMG_9269.jpg" width="200" height="200">
+<img src="https://github.com/user-attachments/assets/8f9d2d79-8dd2-4c89-a49c-1a413b921d7e" width="200" height="200">
+
 
    
    <p align="center"> 
