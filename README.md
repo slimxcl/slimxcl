@@ -1,4 +1,4 @@
-<img width="282" height="530" alt="Screenshot 2026-04-24 161240" src="https://github.com/user-attachments/assets/c4b9fb34-2056-4ab3-ab6b-533ffada968b" />
+
 <p align="center">
 <img width="40" src=https://files.catbox.moe/ps7p0f.webp> <img width="150" src=https://files.catbox.moe/du2bla.png><img width="150" height="200" alt="edelweiss" src="https://github.com/user-attachments/assets/9ce9d827-7554-4c16-bfd4-865d89899276" /><img width="150" src=https://files.catbox.moe/du2bla.png><img width="40" src=https://files.catbox.moe/ps7p0f.webp>
 <p align="center">
@@ -29,8 +29,9 @@
 <p align="center">
 <img width="900" height="100" alt="IMG-7983" src="https://github.com/user-attachments/assets/1b3d02ea-a994-492f-acf5-1e6a910204e9" />
 
-<img align="right" src="https://github.com/slimxcl/screens/blob/bf32bb4ccb332ad986bcb5dd9a84a8d39c714fba/Screenshot_2026-04-24_161240-removebg-preview.png">
+<img align="right" src="https://github.com/user-attachments/assets/c4b9fb34-2056-4ab3-ab6b-533ffada968b">
 <p align="left">
+  
   MY CURRENT INTERESTS:
   <p align="left">
     Countryhumans, Game of Thrones, House of the Dragon, Knight of the seven Kingdoms, T-34 the Duel, Napola, JJK, Hellboy, Adventures of Buratino, F1, Hellsing!﹙anything History related, especially ww2﹚
