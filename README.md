@@ -1,6 +1,5 @@
 <p align="center">
-<img width="40" src=https://files.catbox.moe/ps7p0f.webp> <img width="150" src=https://files.catbox.moe/du2bla.png><img width="150" height="200<img width="640" height="70" alt="IMG-7983" src="https://github.com/user-attachments/assets/6e0c72c0-7704-49bc-88b5-724a04f2422e" />
-" alt="edelweiss" src="https://github.com/user-attachments/assets/9ce9d827-7554-4c16-bfd4-865d89899276" /><img width="150" src=https://files.catbox.moe/du2bla.png><img width="40" src=https://files.catbox.moe/ps7p0f.webp>
+<img width="40" src=https://files.catbox.moe/ps7p0f.webp> <img width="150" src=https://files.catbox.moe/du2bla.png><img width="150" height="200" alt="edelweiss" src="https://github.com/user-attachments/assets/9ce9d827-7554-4c16-bfd4-865d89899276" /><img width="150" src=https://files.catbox.moe/du2bla.png><img width="40" src=https://files.catbox.moe/ps7p0f.webp>
 <p align="center">
 ✦•┈๑⋅⋯ LIV ⋯⋅๑┈•✦
 <p align="center">
